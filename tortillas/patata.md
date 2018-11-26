@@ -1,0 +1,1 @@
+La tortilla francesa u omelet es un plato elaborado con huevo batido y cocinado con mantequilla o aceite, en una sartén. La forma que adquiere durante el cocinado es similar al de una hoja redonda, extendida o plegada sobre sí misma. La versatilidad de este plato es tan grande que existen innumerables variaciones
